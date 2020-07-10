@@ -14,4 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-### 👴
+### 👴 homeless中年(快乐
+### 幼年贫困
+### 青年被骗
+### 中年被坑
+### 老年...不敢想...
